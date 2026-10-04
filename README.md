@@ -104,4 +104,4 @@ Aranay es mi marca de ropa femenina online. Vende por Instagram y Tiendanube. Es
 
 ---
 
-**Melisa Aragón** · Licenciatura en Administración de Empresas (UBA) · [LinkedIn](https://www.linkedin.com/in/TU-USUARIO)
+**Melisa Aragón** · Licenciatura en Administración de Empresas (UBA) · [LinkedIn](https://www.linkedin.com/in/melisa-aragon-596ba91b9/?isSelfProfile=true)
